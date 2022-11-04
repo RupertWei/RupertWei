@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @RupertWei
+- 👀 I’m interested in computer
+- 🌱 I’m currently learning hack
+- 📫 Reach me in #let's be sus on blooket
